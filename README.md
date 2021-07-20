@@ -1,1 +1,1 @@
-# Perspektivgebundenheit-von-K-nstlichen-Intelligenzen-und-deren-Auswirkungen--Seminararbeit
+# Perspektivgebundenheit-von-Kuenstlichen-Intelligenzen-und-deren-Auswirkungen--Seminararbeit
